@@ -1,14 +1,14 @@
 **Round 1**
-* Pull ups with neutral hands - 12 reps
-* Triceps dips - 25 reps
+* Pull ups with neutral hands - 14 reps
+* Triceps dips between chairs (knees bent) - 25 reps
 * Plank with alternating knee forwards - 40 reps
  
 **Round 2**
-* Chin ups with palms facing - 8 reps
-* Dips on headboard - 20 reps
-* Plank with alternating knee forwards - 30 reps, followed by 15 pure contractions
+* Chin ups with palms facing - 10 reps
+* Dips between chairs (knees straight) - 15 reps
+* Hanging stomach contractions - 15 reps
  
 **Round 3**
-* Pull ups wide grips - 5 reps
+* Pull ups wide grips - 7 reps
 * Door frame push ups 25 reps
 * Hanging knee raises - 15 reps

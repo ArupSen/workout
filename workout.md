@@ -12,3 +12,6 @@
 * Pull ups wide grips - 7 reps
 * Door frame push ups 25 reps
 * Hanging knee raises - 15 reps
+
+**Legs**
+* Squats with back sliding on wall - 20 reps

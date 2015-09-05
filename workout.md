@@ -1,18 +1,18 @@
-**Round 1**
-* Pull ups wide grips - 12 reps
-* Dips between chairs (knees straight) - 23 reps
-* Hanging knee raises - 22 reps
- 
-**Round 2**
-* Chin ups with palms facing - 9 reps
-* Push ups between chairs 17 reps
-* Hanging stomach contractions - 23 reps
- 
-**Round 3**
-* Pull ups with neutral hands - 9 reps (2 -ve)
-* Triceps dips between chairs (knees bent) - 25 reps
-* Mountain climbers - 34 reps
+**Superset 1**
+* Pull ups wide grips - 5 reps
+* Dips straight bar style (on sofa arm)- 10 reps
+* Hanging leg raises - 5 reps
 
-**Legs**
-* Squats with back sliding on wall - 23 reps
-* Reverse lunges - 10 reps (each side)
+**Superset 2**
+* Chin ups with palms facing - 5 reps
+* Dips on edge of bath - 10 reps
+* Hanging stomach contractions - 10 reps
+ 
+**Superset 3**
+* Squats - 10 reps
+* Mountain climbers - 20 reps
+
+**Notes**
+* Rest 1 minute between supersets
+* Do each superset 5 times
+* After final set of pull ups and chins hold for 5 count

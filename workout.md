@@ -6,8 +6,8 @@
 **Superset 2**
 * Chin ups with palms facing - 6 reps
 * Triceps dips on sofa arm - 10 reps
-* Hanging stomach contractions - 12 reps (5 second bend knee hanging L-sit)
- 
+* Hanging stomach contractions - 12 reps (5 second bent knee hanging L-sit)
+
 **Superset 3**
 * Squats - 12 reps
 * Mountain climbers - 20 reps

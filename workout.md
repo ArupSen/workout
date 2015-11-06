@@ -1,12 +1,12 @@
 **Superset 1**
-* Pull ups wide grips - 6 reps (7 reps for 2 middle sets)
-* Dips straight bar style (on sofa arm)- 10 reps
-* Hanging leg raises - 5 reps
+* Pull ups wide grips - 7 reps
+* Dips wide between kitchen counter - 6 reps
+* Hanging straight leg raises - 6 reps
 
 **Superset 2**
-* Chin ups with palms facing - 6 reps
-* Triceps dips on sofa arm - 10 reps
-* Hanging stomach contractions - 12 reps (5 second bent knee hanging L-sit)
+* Chin ups with palms facing - 7 reps (middle 2 sets close grip pull ups)
+* Triceps dips on kitchen counter - 10 reps
+* Reverse plank crunches - 12 reps followed by 5 second bent knee hanging L-sit
 
 **Superset 3**
 * Squats - 12 reps

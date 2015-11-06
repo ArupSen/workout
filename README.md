@@ -4,9 +4,9 @@ My home workout session. I have been doing this session since early 2014 and do 
 
 Git and GitHub isn't only for code you know.
 
-##Update October 2015:
+##Update November 2015:
 The changes that I've made are according to the following guidelines.
-* Focus in quality rather than quantity i.e. good form
+* Focus on quality rather than quantity i.e. good form
 * Do the hardest exercises first
 * Add holds during the final set
 * Inspired by Calishenics workouts

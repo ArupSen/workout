@@ -4,7 +4,7 @@ My home workout session. I have been doing this session since early 2014 and do 
 
 Git and GitHub isn't only for code you know.
 
-##Update November 2015:
+##Update December 2015:
 The changes that I've made are according to the following guidelines.
 * Focus on quality rather than quantity i.e. good form
 * Do the hardest exercises first

@@ -4,9 +4,10 @@ My home workout session. I have been doing this session since early 2014 and do 
 
 Git and GitHub isn't only for code you know.
 
-##Update December 2015:
+##Update January 2016:
 The changes that I've made are according to the following guidelines.
 * Focus on quality rather than quantity i.e. good form
-* Do the hardest exercises first
-* Add holds during the final set
-* Inspired by Calishenics workouts
+* Progressions i.e. from 4 reps up to 8
+* When 8 reps can be performed with ease it's time move on
+* Inspired by Calishenics bodyweight workouts
+* 2016 is about working towards the front lever and muscle up

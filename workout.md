@@ -1,22 +1,23 @@
-**March 2017 workout**
---Shoulder warm ups--
---Wrist warm ups--
---Plank holds--
---Handstands - 4 x 1 minute--
---Rings, top position hold--
+**April 2017 workout**
+* Shoulder warm ups
+* Wrist warm ups
+* Plank holds
+* Handstands - 4 x 1 minute
+* Rings, top position hold 1 minute
 
-* Pull ups - 3 x 7
-* Ring dips - 3 x 5
-* Step ups - 3 x 8
-* L-sit - 10 seconds
-* Compression lift - 10 seconds
-* Ring (RTO) push ups - 3 x 6
-* Ring rows - 3 x 7
+* Pull ups - 3 x 10
+* Ring dips - 3 x 10
+* Step ups - 3 x 15
+* L-sit - 20 seconds
+* Compression lift - 20 seconds
+* Ring (RTO) push ups - 3 x 10
+* Ring rows - 3 x 10
 
 **Notes**
 * Rest 1 minute between sets (or more if necessary)
-* Work towards 8 reps for each set
+* Work towards 10 reps for each set
 * Avoid working to failure
+* Use drop sets to reach those extra reps
 
 **Greasing the Groove**
 During the latter part of March and for April the idea is to work on dips and l-sit every day, multiple times a day. 2 dips and a 5 second l-sit on rings.
